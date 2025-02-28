@@ -13,3 +13,7 @@ La carne es un alimento proteico indispensable por su riqueza en aminoácidos, d
 - jugos naturales (de su preferencia)
 - agua con gas
 - gaseosas (de su preferencia)
+
+## Consejos
+- Usa ingredientes frescos para mejores resultados.
+- Acompaña con pan artesanal para una experiencia completa.
