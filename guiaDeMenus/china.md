@@ -11,3 +11,7 @@ Uso de ingredientes frescos y locales: la frescura es primordial en la comida ch
 - Vino tinto Chianti.
 - Agua con gas.
 - Limoncello como digestivo.
+
+## Consejos
+- Usa ingredientes frescos para mejores resultados.
+- Acompaña con pan artesanal para una experiencia completa.
