@@ -12,3 +12,6 @@ Se caracteriza por su sencillez, su uso de ingredientes locales y su adaptación
 - Agua con gas.
 - Limoncello como digestivo.
 ​
+## Consejos
+- Usa ingredientes frescos para mejores resultados.
+- Acompaña con pan artesanal para una experiencia completa.
