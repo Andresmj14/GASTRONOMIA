@@ -7,7 +7,11 @@ La cocina francesa está caracterizada por la variedad de platos que presenta de
 -**RATATOUILLE**: estofado con tomates, ajo, pimentón, cebolla, calabacín y berenjena, que se preparan con aceite de oliva. 
 -**ESCARGOTS DE BOURGOGNE**: En su preparación tradicional tiene que llevar tocineta y queso gruyere, así como pimienta molida y nuez moscada. Sin embargo, se le pueden agregar algunas verduras que aportan su toque de sabor.
 
-
+## Bebidas Recomendadas
+- Vino tinto Chianti.
+- Agua con gas.
+- Limoncello como digestivo.
+​
 
 
 
