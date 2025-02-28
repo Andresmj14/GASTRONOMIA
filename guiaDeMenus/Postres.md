@@ -12,3 +12,6 @@ l postre es un plato dulce para después de la comida. Un postre es una comida d
 - Agua con gas.
 - Limoncello como digestivo.
 ​
+## Consejos
+- Usa ingredientes frescos para mejores resultados.
+- preparalo con la mejor dedicacion posible.
