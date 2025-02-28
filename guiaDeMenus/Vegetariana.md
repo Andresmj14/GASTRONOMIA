@@ -9,3 +9,9 @@ La alimentación vegetariana es aquella que excluye el consumo intencionado de c
 
 Para entenderlo mejor, en lugar de usar láminas delgadas de pasta, se usan cortes de berenjena para dividir las capas de esta preparación. En remplazo de la carne se puede aprovechar una buena combinación de vegetales, como champiñones, zuquini, y tomate. 
 
+## Bebidas Recomendadas
+- Vino tinto Chianti.
+- Agua con gas.
+- Limoncello como digestivo.
+​
+
