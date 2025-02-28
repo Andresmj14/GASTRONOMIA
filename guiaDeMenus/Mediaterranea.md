@@ -12,6 +12,7 @@ La base de la dieta mediterránea son las comidas a base de plantas. Esto signif
 - Agua con gas.
 - Limoncello como digestivo.
 ​
-
+## Consejos
+- Usa ingredientes frescos para mejores resultados.
 
 
