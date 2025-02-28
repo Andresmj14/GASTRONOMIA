@@ -13,5 +13,8 @@ Para entenderlo mejor, en lugar de usar láminas delgadas de pasta, se usan cort
 - Vino tinto Chianti.
 - Agua con gas.
 - Limoncello como digestivo.
+
+## Consejos
+- Usa ingredientes frescos para mejores resultados.
 ​
 
