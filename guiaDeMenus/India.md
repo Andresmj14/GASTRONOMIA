@@ -11,3 +11,6 @@ La comida india se caracteriza por ser colorida, de sabores y aromas variados. E
 - Vino tinto Chianti.
 - Agua con gas.
 - Limoncello como digestivo.
+
+## Consejos
+- Usa ingredientes frescos para mejores resultados.
