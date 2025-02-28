@@ -12,6 +12,9 @@ La cocina francesa está caracterizada por la variedad de platos que presenta de
 - Agua con gas.
 - Limoncello como digestivo.
 ​
+## Consejos
+- Usa ingredientes frescos para mejores resultados.
+- Acompaña con pan artesanal para una experiencia completa.
 
 
 
