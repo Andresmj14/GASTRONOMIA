@@ -8,3 +8,8 @@ La carne es un alimento proteico indispensable por su riqueza en aminoácidos, d
 -**Carne Sudada** : Carne fina cubierta con salsa a base de tomate, cebolla, pimienta, papas, y oregano.
 
 -**Pechuga Asada** : cortes finos de pollo, asada con oregano, pimienta, sal y ajo.
+
+## Bebidas Recomendadas
+- jugos naturales (de su preferencia)
+- agua con gas
+- gaseosas (de su preferencia)
