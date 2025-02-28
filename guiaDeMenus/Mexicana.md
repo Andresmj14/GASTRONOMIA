@@ -6,3 +6,9 @@ Se caracteriza por su sencillez, su uso de ingredientes locales y su adaptación
 ## Platos Principales
 - **Tacos**: Se llama taco a la tortilla de maíz (o de harina de trigo) enrollada rellena de cualquier tipo de alimentos que se te ocurran. Los más populares suelen ser los rellenos de carne, cebolla, cilantro y algo de salsa picante. 
 - **Totopos**: Se trata de trozos de tortillas de maíz fritos hasta que adquieren una textura crujiente. Se suelen comer en platos en los que hay frijoles refritos, en los populares nachos (con queso, jocoque y chiles jalapeños) o para acompañar el guacamole.
+
+## Bebidas Recomendadas
+- Vino tinto Chianti.
+- Agua con gas.
+- Limoncello como digestivo.
+​
