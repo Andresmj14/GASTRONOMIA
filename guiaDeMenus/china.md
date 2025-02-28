@@ -6,3 +6,8 @@ Uso de ingredientes frescos y locales: la frescura es primordial en la comida ch
 ## Platos Principales
 -**Pollo kung pao**: Pechuga de pollo, Salsa de soja, Miel pura, Chile seco, Pimienta negra en grano o de Sichuán.
 -**Rollitos de primavera**: Pasta wanton, 150 g de repollo, 3 zanahorias, 1 cebolla, 100 g de brotes de soja, sal, 200g de carne piada, 1 huevo, aceite vegetal para freír.
+
+## Bebidas Recomendadas
+- Vino tinto Chianti.
+- Agua con gas.
+- Limoncello como digestivo.
