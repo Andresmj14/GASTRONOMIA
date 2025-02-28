@@ -11,3 +11,6 @@ La gastronomía japonesa destaca por su sencillez y elegancia en cada plato. La 
 - Vino tinto Chianti.
 - Agua con gas.
 - Limoncello como digestivo.
+
+## Consejos
+- Usa ingredientes frescos para mejores resultados.
